@@ -1,2 +1,0 @@
-# medicaltemplate.github.io
- 
